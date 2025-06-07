@@ -1,4 +1,4 @@
-## Hi there 👋 My name is sarawut you can call me toey. ❤️
+## Hi there 👋❤️
 
 <!--
 **sarawut5555/sarawut5555** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
